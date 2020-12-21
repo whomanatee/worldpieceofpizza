@@ -1,2 +1,4 @@
 # worldpieceofpizza.org
-Before we world peace let's world piece of pizza
+0) Before world piece comes world piece of pizza
+1) PIECE A' PIZZA
+2) Soon serving pizza, hot soup, and chopped salad
